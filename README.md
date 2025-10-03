@@ -31,7 +31,7 @@ We do **not** sell, share, or transfer user data to third parties. We do **not**
 
 ## Contact
 
-For questions or support, please contact us at waseemashraf1212@gmail.com.
+For questions or support, please contact us at waseemashrafdev@gmail.com.
 
 ---
 
